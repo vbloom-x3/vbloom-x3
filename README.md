@@ -1,13 +1,12 @@
 #  ‧͙⁺˚*･༓☾ Hai~!! ☽༓･*˚⁺‧͙
 
-I’m **bloom**
-I’m a writer, creative technologist, and dreamer who blends imagination, music, and code to build meaningful things.  
+I’m **bloom**; a writer, creative technologist, and dreamer who blends imagination, music, and code to build meaningful things.  
 
 ---
 
 ## About Me
 I love weaving stories and building projects that feel human, empathetic, and a little magical.  
-Music is my constant fuel: from dreamy indie & lo-fi to **underground psytrance** (yes, I’ll headbang to Noizenecio straight out of Hokkaido 🌀).  
+Music is my constant fuel: from dreamy uplifting-trance to J-CORE! ( Japanese Stream Hardcore's Compilations are soooo good! )
 If it sparks emotion or pushes imagination, it has a place in my world.  
 
 ---
@@ -37,10 +36,9 @@ If it sparks emotion or pushes imagination, it has a place in my world.
 ---
 
 ## Now Playing
-*(manual update section — powered by VLC ✧)*  
 
-- **Latest Obsession:** Noizenecio – Headbang   
-- **On Repeat:** indie dreamscapes + underground psytrance  
+- **Latest Obsession:** [ Japanese Stream Hardcore vol. 9 ] -> Noizenecio – Headbang   
+- **On Repeat:** [ Japanese Stream Hardcore X ] -> Noizenecio - Raibon  
 - **Philosophy:** if it fuels imagination, it fuels creation   
 
 ---
@@ -51,12 +49,12 @@ If it sparks emotion or pushes imagination, it has a place in my world.
 
 ---
 
-## 💌 Connect With Me
+## Connect With Me
 - Email: vbloomv@proton.me
 - Portfolio/Website: WIP
 
 ---
 
 ## Fun Fact
-I’m equal parts soft cutecore dreamer and underground psy-head — and that duality drives everything I create.  
+I’m equal parts soft dreamer and an idiot! — and that duality drives everything I create.  
 
