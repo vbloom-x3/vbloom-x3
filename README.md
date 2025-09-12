@@ -5,9 +5,9 @@ I’m **bloom**; a writer, creative technologist, and dreamer who blends imagina
 ---
 
 ## About Me
-I love weaving stories and building projects that feel human, empathetic, and a little magical.  
-Music is my constant fuel: from dreamy uplifting-trance to J-CORE! ( Japanese Stream Hardcore's Compilations are soooo good! )
-If it sparks emotion or pushes imagination, it has a place in my world.  
+* I love weaving stories and building projects that feel human, empathetic, and a little magical.  
+* Music is my constant fuel: from dreamy uplifting-trance to J-CORE! ( Japanese Stream Hardcore's Compilations are soooo good! ).
+* If it sparks emotion or pushes imagination, it has a place in my world.  
 
 ---
 
